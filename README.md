@@ -4,3 +4,4 @@ Be strict with youself and tolerant to others
 Persue what is meaningful
 Be able to say no
 Trust the process
+Be gratefull
